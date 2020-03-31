@@ -47,4 +47,4 @@
 
 感谢您花时间了解我们的隐私政策！我们将尽全力保护您的个人信息和合法权益，再次感谢您的信任！
 #### 联系我们
-wakeupsx@gmail.com
+wakeupxsqaz@gmail.com
